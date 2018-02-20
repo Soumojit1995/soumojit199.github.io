@@ -1,2 +1,1 @@
-# Simple Portfolio-design.
-## Krishnendu Mitra.
+# soumojit1995.github.io
